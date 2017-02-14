@@ -1,2 +1,3 @@
 # hello-world
 Learningbydoing
+Hello future Jannik. You are now glaring back on your hard days. Days filled with nonsence and nothing. Days you could have spent on projects and future development. I am not trying to give you a reason to feel bad about it. In fact, I'm giving you a reason to feel good about where you are, and what you have achieved. Maybe you have a girlfriend. Maybe you have good friends around you. Maybe you have a steady job where you feel you belong. Maybe you are at the excact same place as I am now. If so, just go ahead and kill yourself. Just kidding, but that's my kind of houmour. Yours aswell. Stay strong and focused. Love you, dude.
